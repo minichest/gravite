@@ -4,6 +4,7 @@ email: aether@aezlo.com
 description: > # this means to ignore newlines until "show_exerpts:"
   My Blog in general, there is everything to anything and more - you will see...
 show_excerpts: true # set to true to show excerpts on the homepage
+url: http://gravite.aezlo.com
 baseurl: #
 
 # Minima date format
@@ -19,7 +20,7 @@ texture:
   style: black
   showNav: false
   showPicker: hide
-  disqus_shortname: games
+  disqus_shortname: gravite
 
   # generate social links in footer
   social_links:

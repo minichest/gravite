@@ -4,7 +4,8 @@ title:  "Pendu Review"
 date:   2021-07-23 20:07:30 -0100
 ---
 
-## Pendu is Penaldo. Penaldo is Pendu. There has been multiple adaptions of this idea of Penduism - associated with Penaldo statpadding against small teams and consistently only scoring penalties in most games. Adaptions of this idea of Penduism includes Penaldo - Penalty Shootout which can be installed [here](https://play.google.com/store/apps/details?id=air.Penaldo) or via [APKPURE](https://apkpure.com/penaldo-penalty-shoot-out/air.Penaldo) Let's get to the main focus now...here below are a list of the top Pendu Pics that I have seen. Anyways, let us start with our list:
+## Pendu is Penaldo. Penaldo is Pendu. 
+## There has been multiple adaptions of this idea of Penduism - associated with Penaldo statpadding against small teams and consistently only scoring penalties in most games. Adaptions of this idea of Penduism includes Penaldo - Penalty Shootout which can be installed [here](https://play.google.com/store/apps/details?id=air.Penaldo) or via [apkpure](https://apkpure.com/penaldo-penalty-shoot-out/air.Penaldo) Let's get to the main focus now...here below are a list of the top Pendu Pics that I have seen. Anyways, let us start with our list:
 
 ## 5. Who needs a call of duty?
 
@@ -17,7 +18,7 @@ date:   2021-07-23 20:07:30 -0100
 
 ### He needs 1 desperately, what are you waiting for? Also, watch out for his gun...just give him any penalty. Slabhead, Fridge, Harry Maguire, you had a penalty in Greece - why did you not give it to Pendu? He would have very much enjoyed that gift of a beloved penalty to store in his collection and whole package of penalties dating from his early career in the 2000s. I mean, humanity is at risk of succumbing to the acts of pendu if we don't give him it to him right now. Anyone, whoever is going to referee the next Ronaldo Game - give him a penalty for the sake of humanity. ![save](https://media.discordapp.net/attachments/705365548120277103/866389008548757515/20210609_120906.jpg)
 
-## 3. Penalty-Man the movie
+## 3. Penalty-Man The Movie
 
 ### We all love a good movie or series right. Most people like the Fast And Furious franchise starred by the Rock (Dwayne Johnson) - the most successful movie star in the world; some just enjoy watching other movies like Guardians Of The Galaxy featuring Drax (Dave Bautista). However, none of their moves will ever top - let alone even come close to the masterclass of a production that we all know as Penalty-Man; a story of a pen merchant using his pen taking abilities to save the world.
 

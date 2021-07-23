@@ -4,7 +4,8 @@ title:  "Pendu Review"
 date:   2021-07-23 20:07:30 -0100
 ---
 
-### Pendu is Penaldo. Penaldo is Pendu. There has been multiple adaptions of this idea of Penduism - associated with Penaldo statpadding against small teams and consistently only scoring penalties in most games. Adaptions of this idea of Penduism includes Penaldo - Penalty Shootout which can be installed [here](https://play.google.com/store/apps/details?id=air.Penaldo) or via [apkpure](https://apkpure.com/penaldo-penalty-shoot-out/air.Penaldo) Let's get to the main focus now...here below are a list of the top Pendu Pics that I have seen. Anyways, let us start with our list:
+## Pendu is Penaldo. Penaldo is Pendu. 
+### There has been multiple adaptions of this idea of Penduism - associated with Penaldo statpadding against small teams and consistently only scoring penalties in most games. Adaptions of this idea of Penduism includes Penaldo - Penalty Shootout which can be installed [here](https://play.google.com/store/apps/details?id=air.Penaldo) or via [apkpure](https://apkpure.com/penaldo-penalty-shoot-out/air.Penaldo) Let's get to the main focus now...here below are a list of the top Pendu Pics that I have seen. Anyways, let us start with our list:
 
 ## 5. Who needs a call of duty?
 

@@ -4,8 +4,6 @@ title:  "Pendu Review"
 date:   2021-07-23 20:07:30 -0100
 ---
 
-# <u>Top 5 Pictures of Pendu</u>
-
 ## Pendu is Penaldo. Penaldo is Pendu. There has been multiple adaptions of this idea of Penduism - associated with Penaldo statpadding against small teams and consistently only scoring penalties in most games. Adaptions of this idea of Penduism includes Penaldo - Penalty Shootout which can be installed [here](https://play.google.com/store/apps/details?id=air.Penaldo) or via [APKPURE](https://apkpure.com/penaldo-penalty-shoot-out/air.Penaldo) Let's get to the main focus now...here below are a list of the top Pendu Pics that I have seen. Anyways, let us start with our list:
 
 ## 5. Who needs a call of duty?
@@ -36,3 +34,7 @@ date:   2021-07-23 20:07:30 -0100
 ### It didn't end too well at a certain part but the purpose of this meme is clear. Pendu tends to statpad goals against small teams very often in his road to success. Across his international career, Penaldo has scored 71% of his international tally against teams outside the top 50 and 32 of his 109 goals (32%) against teams outside the top 100 in the world rankings. He has scored 7 goals against Lithuania as well as 5 goals against the likes of Andorra, Armenia, Latvia, Luxembourg and Sweden. Not far behind, you have his mighty 4 goals against Estonia, Faroe Islands, Hungary and the Netherlands. Then, he has dropped 3 goals on the defence of Belgium, Denmark, Northern Ireland, Russia, Spain and Switzerland. Furthermore, he still found time to net 2 to the despair of Azerbaijan, Bosnia, Cameroon, Cyprus, Czech Republic, Egypt, Kazakhstan and Saudi Arabia. Finally, only a measly 1 goal against Argentina, Croatia, Ecuador, Finland, Ghana, Greece, Iceland, Iran, Morocco, New Zealand, North Korea, Panama, Poland, Serbia, Slovakia, Ukraine, Wales (as of 2019).
 
 ![Luxembourg Man](https://media.discordapp.net/attachments/705365548120277103/866388586190209034/image0-13.jpg)
+
+### Leave your best Pendu Memes below.
+### Which one of those is your favourite?
+### Which would you take out of my top 5?

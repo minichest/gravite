@@ -19,7 +19,7 @@ texture:
   date_format: "%b %-d, %Y"
   style: black
   showNav: false
-  showPicker: hide
+  showPicker: false
   disqus_shortname: gravite
 
   # generate social links in footer

@@ -1,7 +1,5 @@
 ---
 published: true
----
----
 layout: post
 title:  "Spurs Vs Man City"
 date:   2021-07-24 21:04:10 -0100

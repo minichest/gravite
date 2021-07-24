@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ---
 layout: post
@@ -59,4 +59,3 @@ date:   2021-07-24 21:04:10 -0100
 ### Another league title would be nice but this has to be the season we lift the Champions League - there should be no fear or Guardiola knockouts experiments so we will be fine.
 
 ![The Team](https://media.discordapp.net/attachments/828576274544459807/868582114327674940/LINEUP111627156535228.png?width=721&height=406)
-

@@ -6,8 +6,6 @@ layout: post
 title:  "Spurs Vs Man City"
 date:   2021-07-24 21:04:10 -0100
 ---
-
-
 # Spurs vs Man City (2021-22 EPL, Matchday 1)
 
 ### My thoughts on us next season, hopefully we have some sort of success. It is always good to start off the season on the right track; this team is a mix of players that are in form and have not played for some time - so should have rest and hopefully matchfit for our game against Spurs. Last Year was pretty incredible, we reached our first ever Champions League Final and won yet another Premier League title. Dias was a phenomenal signing and completely reformed our defence from the chaos of 19-20 and Ferran excelled in the limited gametime he recieved. Anyways, let me tell you the team that should play the first game against Spurs. 

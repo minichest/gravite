@@ -8,7 +8,7 @@ date:   2022-03-18 20:16:30 -0100
 
 ### We'll just start with a small interpolation.
 
-### > Pendu is Penaldo. Penaldo is Pendu. There has been multiple adaptions of this idea of Penduism - associated with Penaldo statpadding against small teams and consistently only scoring penalties in most games. Adaptions of this idea of Penduism includes Penaldo - Penalty Shootout which can be installed [here](https://play.google.com/store/apps/details?id=air.Penaldo) or via [apkpure](https://apkpure.com/penaldo-penalty-shoot-out/air.Penaldo) Let's get to the main focus now...here below are a list of the top Pendu Pics that I have seen. Anyways, let us start with our list:
+> Pendu is Penaldo. Penaldo is Pendu. There has been multiple adaptions of this idea of Penduism - associated with Penaldo statpadding against small teams and consistently only scoring penalties in most games. Adaptions of this idea of Penduism includes Penaldo - Penalty Shootout which can be installed [here](https://play.google.com/store/apps/details?id=air.Penaldo) or via [apkpure](https://apkpure.com/penaldo-penalty-shoot-out/air.Penaldo) Let's get to the main focus now...here below are a list of the top Pendu Pics that I have seen.
 
 ### Some More Info On Pendus. Pendu is a word in the English Dictionary for the 'culturally backward', but most importantly Pendu is a fraud from portugal who only scores tap in and penalties - he like to steal pens a lot to keep his deluded fans happy.
 

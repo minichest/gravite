@@ -1,7 +1,4 @@
 ---
-published: false
----
----
 layout: post
 title:  "Pendu Review 2"
 date:   2022-03-18 20:16:30 -0100

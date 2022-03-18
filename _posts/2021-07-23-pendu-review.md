@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pendu Review"
-date:   2021-07-23 20:07:30 -0100
+date:   2021-07-23 20:07:30
 ---
 
 ## Pendu is Penaldo. Penaldo is Pendu. 

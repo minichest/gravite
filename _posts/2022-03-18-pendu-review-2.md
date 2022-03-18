@@ -45,7 +45,7 @@ date:   2022-03-18 20:16:30 -0100
 ---------------------------------------
 ## 1. Ghost Of Manchester
 
-![Ghost Of Manchester](https://pbs.twimg.com/media/FN7G-JnWUAUQhTO)
+![Ghost Of Manchester](https://pbs.twimg.com/media/FN7G-JnWUAUQhTO.jpg)
 
 ### It states all we need to know, all we know that's the truth. It's been said that the truth is key. Key in unlocking the Myth. Myth as in the Fraudery of Pendu. Pendu, we know who that fraud is and with that see you later for Round 3. Shoutout to [TheFatherDias](https://twitter.com/TheFatherDias), [his tweet](https://twitter.com/TheFatherDias/status/1503858100356460548) made me want to write this entire post.
 

@@ -59,7 +59,7 @@ date:   2022-03-18 20:15:30 +0000
 ----
 ## Sources: 
 
-### - [TheFatherDias)(https://pbs.twimg.com/media/FN7G-JnWUAUQhTO.jpg)
+### - [TheFatherDias](https://pbs.twimg.com/media/FN7G-JnWUAUQhTO.jpg)
 
 ### - [Conclave NG](https://www.theconclaveng.com/wp-content/uploads/2022/02/IMG-20220205-WA0024.jpg)
 
